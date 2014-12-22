@@ -33,7 +33,22 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-In this tretyse that is cleped Gouernayle of helthe what is to be sayd wyth crystis helpe of some th
+In this tretyse that is cleped Gouernayle
+of helthe: What is to
+be sayd wyth crystis helpe of some
+t
+1. ¶What is fyrst on morow to be done.
+
+1. ¶Of the body exersice & of his profite.
+
+1. ¶The spyces of exercyse / 
+
+1. ¶How a man sholde haue hym in etyng:
+
+1. ¶What shall be don̄ after mete:
+
+1. ¶of noyes of euyll gouernaūce
+For helth of body. couere for colde thy hedeete no rawe mete / take good hede heretoDrynke holsom wy
 **Types of content**
 
   * There are 80 **verse** lines!
